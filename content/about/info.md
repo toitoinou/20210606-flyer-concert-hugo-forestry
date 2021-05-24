@@ -11,6 +11,4 @@ contact_info:
 type: ''
 
 ---
-## This is made with [Forestry](https://forestry.io/ "Forestry.io") & [Hugo](https://gohugo.io/ "Hugo SSG").
-
-## 
+![](/images/2021_06_06_affiche_trio_miro_original_srgb_low_4096.jpg)
