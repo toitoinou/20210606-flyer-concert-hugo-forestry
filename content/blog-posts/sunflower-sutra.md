@@ -1,43 +1,17 @@
 ---
-title: Sunflower Sutra
-date: 2019-07-16T19:17:43.000+00:00
+title: Aram Khatchatourian
+date: 
 type: blog
-hero: "/images/adrien-olichon--aOsCcTJXWY-unsplash.jpg"
-author: Allen Ginsberg
+hero: "/images/220px-aram_khachaturian-_pic-_17.jpg"
+author: ''
 
 ---
-I walked on the banks of the tincan banana dock and sat down under the huge shade of a Southern Pacific locomotive to look for the sunset over the box house hills and cry.
+**Aram Ilitch Khatchatourian** ([arménien](https://fr.wikipedia.org/wiki/Arm%C3%A9nien "Arménien") : Արամ Խաչատրյան [russe](https://fr.wikipedia.org/wiki/Russe "Tbilissi") : Арам Ильич Хачатурян) est un [compositeur](https://fr.wikipedia.org/wiki/Compositeur "Union des républiques socialistes soviétiques") [soviétique](https://fr.wikipedia.org/wiki/Sovi%C3%A9tique "Soviétique") [arménien](https://fr.wikipedia.org/wiki/Arm%C3%A9nie "Arménie"), né le 24 mai 1903 ([6](https://fr.wikipedia.org/wiki/6_juin "6 juin") [juin](https://fr.wikipedia.org/wiki/Juin_1903 "Juin 1903") [1903](https://fr.wikipedia.org/wiki/1903 "1903") [dans le calendrier grégorien](https://fr.wikipedia.org/wiki/Passage_du_calendrier_julien_au_calendrier_gr%C3%A9gorien "Spartacus (ballet)")) à [Tbilissi](https://fr.wikipedia.org/wiki/Tbilissi "Tbilissi") ([Géorgie](https://fr.wikipedia.org/wiki/G%C3%A9orgie_(pays) "Géorgie (pays)")) et mort le [1er](https://fr.wikipedia.org/wiki/1er_mai "1er mai") [mai](https://fr.wikipedia.org/wiki/Mai_1978 "Mai 1978") [1978](https://fr.wikipedia.org/wiki/1978_en_musique_classique "1978 en musique classique") à [Moscou](https://fr.wikipedia.org/wiki/Moscou).
 
-Jack Kerouac sat beside me on a busted rusty iron pole, companion, we thought the same thoughts of the soul, bleak and blue and sad-eyed, surrounded by the gnarled steel roots of trees of machinery.
+Khatchatourian s'imposa peu à peu comme l'un des compositeurs « officiels » de l'[Union soviétique](https://fr.wikipedia.org/wiki/Union_des_r%C3%A9publiques_socialistes_sovi%C3%A9tiques). Il fut professeur au [conservatoire de Moscou](https://fr.wikipedia.org/wiki/Conservatoire_de_Moscou "Conservatoire de Moscou") et député au [Soviet suprême](https://fr.wikipedia.org/wiki/Soviet_supr%C3%AAme "Soviet suprême"). Son tempérament généreux et ses talents d'[orchestrateur](https://fr.wikipedia.org/wiki/Orchestrateur "Orchestrateur") se retrouvent dans des ouvrages célèbres comme le [ballet](https://fr.wikipedia.org/wiki/Ballet "Ballet") [_Gayaneh_](https://fr.wikipedia.org/wiki/Gayaneh "Gayaneh") — et sa fameuse [_Danse du sabre_](https://fr.wikipedia.org/wiki/La_Danse_du_sabre "La Danse du sabre") — et [_Spartacus_](https://fr.wikipedia.org/wiki/Spartacus_(ballet)).
 
-![](/images/elcarito-CRn-_80z4SE-unsplash.jpg)
+**Au sujet du Trio en sol mineur pour clarinette, violon et piano**
 
-The only water on the river mirrored the red sky, sun sank on top of final Frisco peaks, no fish in that stream, no hermit in those mounts, just ourselves rheumy-eyed and hung-over like old bums on the riverbank, tired and wily.
+Khatchatourian avait déjà composé en [1932](https://fr.wikipedia.org/wiki/1932 "1932") un _Trio pour clarinette_, violon et piano remarqué par [Prokofiev](https://fr.wikipedia.org/wiki/Prokofiev "Prokofiev"), qui le fit interpréter à [Paris](https://fr.wikipedia.org/wiki/Paris). En [1933](https://fr.wikipedia.org/wiki/1933 "1933"), il composa une _Suite pour la danse_. Il s’inspira de toutes sortes de danses arméniennes, [géorgiennes](https://fr.wikipedia.org/wiki/G%C3%A9orgien "Géorgien") et [ouzbeks](https://fr.wikipedia.org/wiki/Ouzbek "Ouzbek") et, de son œuvre, on découvrait un goût évident pour le folklore. Il écrivit aussi une première symphonie, pour obtenir son diplôme du conservatoire, et aussi pour faire honneur à son pays, à l'occasion du quinzième anniversaire de ce dernier.
 
-Look at the Sunflower, he said, there was a dead gray shadow against the sky, big as a man, sitting dry on top of a pile of ancient sawdust--
-
-\--I rushed up enchanted--it was my first sunflower, memories of Blake--my visions--Harlem
-
-# "the gray Sunflower poised against the sunset, crackly bleak and dusty with the smut and smog and smoke of olden locomotives in its eye"
-
-and Hells of the Eastern rivers, bridges clanking Joes greasy Sandwiches, dead baby carriages, black treadless tires forgotten and unretreaded, the poem of the riverbank, condoms & pots, steel knives, nothing stainless, only the dank muck and the razor-sharp artifacts passing into the past--
-
-and the gray Sunflower poised against the sunset, crackly bleak and dusty with the smut and smog and smoke of olden locomotives in its eye--
-
-corolla of bleary spikes pushed down and broken like a battered crown, seeds fallen out of its face, soon-to-be-toothless mouth of sunny air, sunrays obliterated on its hairy head like a dried wire spiderweb,
-
-leaves stuck out like arms out of the stem, gestures from the sawdust root, broke pieces of plaster fallen out of the black twigs, a dead fly in its ear,
-
-Unholy battered old thing you were, my sunflower O my soul, I loved you then!
-
-![](/images/francesco-mazzoli-0xh3QPqcfKM-unsplash.jpg)
-
-The grime was no man's grime but death and human locomotives,
-
-all that dress of dust, that veil of darkened railroad skin, that smog of cheek, that eyelid of black mis'ry, that sooty hand or phallus or protuberance of artificial worse-than-dirt--industrial--modern--all that civilization spotting your crazy golden crown--
-
-and those blear thoughts of death and dusty loveless eyes and ends and withered roots below, in the home-pile of sand and sawdust, rubber dollar bills, skin of machinery, the guts and innards of the weeping coughing car, the empty lonely tincans with their rusty tongues alack, what more could I name, the smoked ashes of some cock cigar, the cunts of wheelbarrows and the milky breasts of cars, wornout asses out of chairs & sphincters of dynamos--all these
-
-entangled in your mummied roots--and you standing before me in the sunset, all your glory in your form!
-
-A perfect beauty of a sunflower! a perfect excellent lovely sunflower existence! a sweet natural eye to the new hip moon, woke up alive and excited grasping in the sunset shadow sunrise golden monthly breeze!
+_Source Wikipedia :_ [https://fr.wikipedia.org/wiki/Aram_Khatchatourian](https://fr.wikipedia.org/wiki/Aram_Khatchatourian "https://fr.wikipedia.org/wiki/Aram_Khatchatourian")
