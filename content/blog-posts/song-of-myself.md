@@ -1,34 +1,23 @@
 ---
-title: Song of Myself
-date: 2019-07-11T19:17:43.000+00:00
+title: Béla Bartók
+date: 
 type: blog
-hero: "/images/ren-ran-bBiuSdck8tU-unsplash.jpg"
-author: Walt Whitman
+hero: "/images/220px-bartok_bela_1927.jpg"
+author: ''
 
 ---
-I have heard what the talkers were talking, the talk of the  
-beginning and the end
+**Béla Bartók** (prononciation \[[ˈ](https://fr.wikipedia.org/wiki/API_%CB%88 "API ˈ")[b](https://fr.wikipedia.org/wiki/API_b "API b")[e](https://fr.wikipedia.org/wiki/API_e "API e")[ː](https://fr.wikipedia.org/wiki/API_%CB%90 "API ː")[l](https://fr.wikipedia.org/wiki/API_l "API l")[ɒ](https://fr.wikipedia.org/wiki/API_%C9%92 "API ɒ") [ˈ](https://fr.wikipedia.org/wiki/API_%CB%88 "API ˈ")[b](https://fr.wikipedia.org/wiki/API_b "API b")[ɒ](https://fr.wikipedia.org/wiki/API_%C9%92 "API ɒ")[r](https://fr.wikipedia.org/wiki/API_r "API r")[t](https://fr.wikipedia.org/wiki/API_t "API t")[o](https://fr.wikipedia.org/wiki/API_o "API o")[ː](https://fr.wikipedia.org/wiki/API_%CB%90 "API ː")[k](https://fr.wikipedia.org/wiki/API_k "API k")\][1](https://fr.wikipedia.org/wiki/B%C3%A9la_Bart%C3%B3k#cite_note-1)) est un [compositeur](https://fr.wikipedia.org/wiki/Compositeur "Compositeur") et pianiste [hongrois](https://fr.wikipedia.org/wiki/Hongrois), né le [25](https://fr.wikipedia.org/wiki/25_mars "25 mars") [mars](https://fr.wikipedia.org/wiki/Mars_1881 "Ditta Pásztory") [1881](https://fr.wikipedia.org/wiki/1881_en_musique_classique "1881 en musique classique") à Nagyszentmiklós en [Autriche-Hongrie](https://fr.wikipedia.org/wiki/Autriche-Hongrie "Autriche-Hongrie") (aujourd'hui [Sânnicolau Mare](https://fr.wikipedia.org/wiki/S%C3%A2nnicolau_Mare "Sânnicolau Mare")[2](https://fr.wikipedia.org/wiki/B%C3%A9la_Bart%C3%B3k#cite_note-2) en [Roumanie](https://fr.wikipedia.org/wiki/Roumanie "Roumanie")) et mort le [26](https://fr.wikipedia.org/wiki/26_septembre "26 septembre") [septembre](https://fr.wikipedia.org/wiki/Septembre_1945 "Septembre 1945") [1945](https://fr.wikipedia.org/wiki/1945_en_musique_classique "1945 en musique classique") à [New York](https://fr.wikipedia.org/wiki/New_York "New York") ([États-Unis](https://fr.wikipedia.org/wiki/%C3%89tats-Unis "États-Unis")).
 
-But I do not talk of the beginning or the end. There was never any more inception than there is now, Nor any more youth or age than there is now, And will never be any more perfection than there is now,  
-Nor any more heaven or hell than there is now.
+Pionnier de l’[ethnomusicologie](https://fr.wikipedia.org/wiki/Ethnomusicologie "Ethnomusicologie"), il enregistra sur le vif nombre de morceaux de [musique folklorique](https://fr.wikipedia.org/wiki/Musique_folklorique) d’[Europe de l'Est](https://fr.wikipedia.org/wiki/Europe_de_l%27Est "Europe de l'Est"). Il est influencé à ses débuts par [Richard Strauss](https://fr.wikipedia.org/wiki/Richard_Strauss "Richard Strauss"), [Liszt](https://fr.wikipedia.org/wiki/Franz_Liszt "Franz Liszt") et [Brahms](https://fr.wikipedia.org/wiki/Johannes_Brahms "Johannes Brahms") dans le style tzigano-hongrois du [_verbunkos_](https://fr.wikipedia.org/wiki/Verbunkos "Arnold Schönberg"); puis sa découverte de [Claude Debussy](https://fr.wikipedia.org/wiki/Claude_Debussy "Claude Debussy") et des chants paysans slaves l'oriente vers un nouveau style très personnel où sont intégrées les découvertes de [Stravinsky](https://fr.wikipedia.org/wiki/Igor_Stravinsky "Igor Stravinsky") et [Schönberg](https://fr.wikipedia.org/wiki/Arnold_Sch%C3%B6nberg). Pédagogue de renom, il resta toute sa vie profondément attaché à sa terre natale : « Pour ma part, durant ma vie entière, en tous lieux, en tout temps et de toutes les façons, je veux servir une seule cause : celle du bien de la nation et de la patrie hongroise »[3](https://fr.wikipedia.org/wiki/B%C3%A9la_Bart%C3%B3k#cite_note-3).
 
-Urge and urge and urge, Always the procreant urge of the world.  
-Out of the dimness opposite equals advance, always substance and  
-increase, Always a knit of identity, always distinction, always a breed of life. To elaborate is no avail, learn'd and unlearn'd feel that it is  
-so.
+**Au sujet de _Contrastes_**
 
-Sure as the most certain sure, plumb in the uprights, well entretied, braced in the beams, Stout as a horse, affectionate, haughty, electrical, I and this mystery here we stand.
+**_Contrastes pour violon, clarinette et piano_**, Sz. 111, est une œuvre en 3 mouvements de [Béla Bartók](https://fr.wikipedia.org/wiki/B%C3%A9la_Bart%C3%B3k "Béla Bartók") écrite en [1938](https://fr.wikipedia.org/wiki/1938_en_musique_classique "1938 en musique classique") pour le violoniste [Joseph Szigeti](https://fr.wikipedia.org/wiki/Joseph_Szigeti "Contraste (homonymie)") et le clarinettiste [Benny Goodman](https://fr.wikipedia.org/wiki/Benny_Goodman "Benny Goodman").
 
-Clear and sweet is my soul, and clear and sweet is all that is not my soul.
+_Contrastes_ mélange des aspects de la [musique traditionnelle hongroise](https://fr.wikipedia.org/wiki/Musique_traditionnelle_hongroise), des [mélodies roumaines](https://fr.wikipedia.org/wiki/Musique_roumaine "Musique roumaine"), des [métriques](https://fr.wikipedia.org/wiki/Mesure_(musique) "Musique bulgare") [bulgares](https://fr.wikipedia.org/wiki/Musique_bulgare) et [grecques](https://fr.wikipedia.org/wiki/Musique_grecque "Musique grecque") avec les techniques de composition du XXe siècle[1](https://fr.wikipedia.org/wiki/Contrastes#cite_note-Tishkoff-1). Les rythmes utilisés sont complexes pour chaque partie, et exigent de tous pendant l'exécution une cohésion d'ensemble très élevée[1](https://fr.wikipedia.org/wiki/Contrastes#cite_note-Tishkoff-1).
 
-![](/images/igor-son-FV_PxCqgtwc-unsplash.jpg)
+_Source Wikipedia :_ 
 
-Lack one lacks both, and the unseen is proved by the seen,  
-Till that becomes unseen and receives proof in its turn.
+[https://fr.wikipedia.org/wiki/B](https://fr.wikipedia.org/wiki/Béla_Bartók "https://fr.wikipedia.org/wiki/Béla_Bartók")éla_Bartók
 
-Showing the best and dividing it from the worst age vexes age,  
-Knowing the perfect fitness and equanimity of things, while they discuss I am silent, and go bathe and admire myself.
-
-Welcome is every organ and attribute of me, and of any man hearty and clean, Not an inch nor a particle of an inch is vile, and none shall be less familiar than the rest.
-
-I am satisfied—I see, dance, laugh, sing; As the hugging and loving bed-fellow sleeps at my side through the night, and withdraws at the peep of the day with stealthy tread. Leaving me baskets cover'd with white towels swelling the house with their plenty, Shall I postpone my acceptation and realization and scream at my eyes, That they turn from gazing after and down the road, And forthwith cipher and show me to a cent, Exactly the value of one and exactly the value of two, and which is ahead?
+[https://fr.wikipedia.org/wiki/Contrastes](https://fr.wikipedia.org/wiki/Contrastes "https://fr.wikipedia.org/wiki/Contrastes")
