@@ -2,7 +2,7 @@
 title: Aram Khatchatourian
 date: 
 type: blog
-hero: "/images/220px-aram_khachaturian-_pic-_17.jpg"
+hero: "/images/1200px-aram_khachaturian-_pic-_17.jpg"
 author: ''
 
 ---
