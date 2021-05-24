@@ -16,8 +16,8 @@ Pionnier de l’[ethnomusicologie](https://fr.wikipedia.org/wiki/Ethnomusicologi
 
 _Contrastes_ mélange des aspects de la [musique traditionnelle hongroise](https://fr.wikipedia.org/wiki/Musique_traditionnelle_hongroise), des [mélodies roumaines](https://fr.wikipedia.org/wiki/Musique_roumaine "Musique roumaine"), des [métriques](https://fr.wikipedia.org/wiki/Mesure_(musique) "Musique bulgare") [bulgares](https://fr.wikipedia.org/wiki/Musique_bulgare) et [grecques](https://fr.wikipedia.org/wiki/Musique_grecque "Musique grecque") avec les techniques de composition du XXe siècle[1](https://fr.wikipedia.org/wiki/Contrastes#cite_note-Tishkoff-1). Les rythmes utilisés sont complexes pour chaque partie, et exigent de tous pendant l'exécution une cohésion d'ensemble très élevée[1](https://fr.wikipedia.org/wiki/Contrastes#cite_note-Tishkoff-1).
 
-_Source Wikipedia :_ 
+_Source texte et image Wikipedia :_
 
-[https://fr.wikipedia.org/wiki/B](https://fr.wikipedia.org/wiki/Béla_Bartók "https://fr.wikipedia.org/wiki/Béla_Bartók")éla_Bartók
+[https://fr.wikipedia.org/wiki/Béla_Bartók](https://fr.wikipedia.org/wiki/Béla_Bartók "https://fr.wikipedia.org/wiki/Béla_Bartók")
 
 [https://fr.wikipedia.org/wiki/Contrastes](https://fr.wikipedia.org/wiki/Contrastes "https://fr.wikipedia.org/wiki/Contrastes")
